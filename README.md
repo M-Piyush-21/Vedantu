@@ -1,1 +1,1 @@
-# Vedantu
+# Vedantu (Ed Tech Plaform) 
